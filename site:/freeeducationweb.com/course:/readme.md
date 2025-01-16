@@ -1,0 +1,2 @@
+- https://freeeducationweb.com/ai-in-content-creation-and-social-media-marketing/
+- https://freeeducationweb.com/the-ultimate-cold-email-and-lead-generation-mastery-course/
